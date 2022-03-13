@@ -1,2 +1,2 @@
-- 👋 Hi, we're @beautyisourbusiness, the crypto Dijkstra frens
+- 👋 Hi, we're @beautyisourbusiness, the cryptodijkstrians frens
 
